@@ -1,4 +1,4 @@
-- 👋 oi eu sou o gabriel, tenho 14 anos
+- 👋 oi eu sou o gabriel, tenho 15 anos
 eu estou interessado em futebol..
  eu estou atualmente aprendendo muitas coisas
 <!--eu estouprocura-
